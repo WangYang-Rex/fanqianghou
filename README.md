@@ -19,10 +19,14 @@ youtube 俗称之为油管，内容涵盖只能用海量来说，坐拥 10 亿�
 
 - [宇哥讲电影](https://www.youtube.com/channel/UCdRKafyb--geO9ySg6CbhYA) – 解说世界知名电影，剧情讲解清晰，没时间看电影的可以看看这个，10 分钟以内听完一部电影的精华解说。
 - [科幻梦工厂](https://www.youtube.com/channel/UCTY7QED-uxqgUtU0COknFdg) – 科幻 5 分钟，这里有大量最新的科幻电影解说，画面剪辑和解说质量都很高。
-- [科幻 FANS]()  – 解说最新的科幻电影。
+- [科幻 FANS](https://www.youtube.com/channel/UCq2a8muf_TCGJt1AhBfU-7A)  – 解说最新的科幻电影。
 - [惊悚哥](https://www.youtube.com/channel/UCq5lbTl1VD0PLtHteglqZfA) – 不耍嘴皮子，只说好电影的惊悚哥。每部电影都解说比较详细，视频时间也比较长。
 - [Teacher Mike 麦克老师](https://www.youtube.com/c/maikelaoshi) – 一个老外用中英文教你学英语
-- [腦洞大開](https://www.youtube.com/channel/UCAOpjqvqfnkIsLGhGrxXWGg) – 汇集各种奇人奇事，让你看不停。[老梁](https://www.youtube.com/channel/UCr_F4Y9iboUKlg_ZPm4jkVQ) – 自国内被封杀后，老梁在 YouTube 上也开了自己的频道，可以相对大胆一点儿的发言。[办公室小野](https://www.youtube.com/channel/UCRB4xZ_2ew7fzmrcv8aj4Lw) – 独特的办公室 DIY 美食、诙谐的内容为她吸引了众多粉丝。
+- [腦洞大開](https://www.youtube.com/channel/UCAOpjqvqfnkIsLGhGrxXWGg) – 汇集各种奇人奇事，让你看不停。
+- [老梁](https://www.youtube.com/channel/UCr_F4Y9iboUKlg_ZPm4jkVQ) – 自国内被封杀后，老梁在 YouTube 上也开了自己的频道，可以相对大胆一点儿的发言。
+- [办公室小野](https://www.youtube.com/channel/UCRB4xZ_2ew7fzmrcv8aj4Lw) – 独特的办公室 DIY 美食、诙谐的内容为她吸引了众多粉丝。
+- [李子柒](https://www.youtube.com/channel/UCoC47do520os_4DBMEFGg4A)  – 美食频道，推原汁原味的中国美食，制作精良，画面优美。
+- [侣行]() - 全世界冒险旅游，帆船五大洋南北极；驾车穿越亚欧大陆；架飞机世界游
 - [老高与小茉 Mr & Mrs Gao](https://www.youtube.com/channel/UCMUnInmOkrWN4gof9KlhNmQ) – 讲述世界趣闻轶事、未解之谜、悬案、阴谋论等各种故事与传说。
 - [Netflix](https://www.netflix.com/)——自从解锁以后极度上瘾，有没有？查看中国 Netflix 解锁教程。
 
